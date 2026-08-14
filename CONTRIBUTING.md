@@ -1,1 +1,1 @@
-coldBrightfyinformationdianccColdBright
+darkCinemaneurobitzcashdiancamDarkCinema
